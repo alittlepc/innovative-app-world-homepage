@@ -1,2 +1,2 @@
 # innovative-app-world-homepage
-Homepage and White Paper for Metaverse Initiative
+Homepage and White Paper for Metaverse Initiative Copyright 2025 Innovative App World LLC 
